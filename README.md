@@ -1,4 +1,4 @@
-![](IBM-work--Russell-Lecture--Screenshot 2023-05-13--09.27.47.png)
+![](IBM-work--Russell-Lecture--Screenshot--2023-05-13--09.27.47.png)
 
 ![](ikigai.jpg)
 
